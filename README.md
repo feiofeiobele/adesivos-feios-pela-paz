@@ -7,26 +7,24 @@
 ╚═╝░░╚═╝╚═╝░░░░░╚══════╝╚═╝░░░░░╚═╝░░░░░╚═╝░░╚═╝
 
 
-ⒶⒹⒺⓈⒾⓋⓄⓈ ⒻⒺⒾⓄⓈ ⓅⒺⓁⒶ ⓅⒶⓏ
+* ADESIVOS FEIOS PELA PAZ *
 
 Associação fundada em: xxxxx
 
-SÓCIOS FUNDADORES
+_SÓCIOS FUNDADORES
 
-Aline Morlock
-membro desde xxxx
+Aline Morlock / membro desde xxxx
 
-Felipe Toten
-membro desde xxxx
+Felipe Toten / membro desde xxxx
 
-SÓCIOS
+_SÓCIOS
 
 -
 
 
 -
 
-MEMBROS
+_MEMBROS
 
 -
 
@@ -34,7 +32,7 @@ MEMBROS
 
 
 
-Ⓞ ⓂⒶⓃⒾⒻⒺⓈⓉⓄ ⒻⒺⒾⓄ
+* O MANIFESTO FEIO *
 
 
-BLA BLA BLALBLLBLALLNAL
+BLA BLA BLALBLLBLALBLA
