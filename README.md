@@ -2,7 +2,7 @@
 
 ***ADESIVOS FEIOS PELA PAZ***
 
-Associação fundada em: dez/2019
+Associação protocolada em: dez/2019
 
 
 ***_SÓCIOS FUNDADORES*** (Bueiro)
