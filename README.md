@@ -29,6 +29,11 @@ Associação protocolada em: dez/2019
 
 - Mattüs Ausente (a convidar)
 
+- Aline Dois (se convidou)
+
+- Marion Chatt (se convidou)
+
+
 
 
 ***_O MANIFESTO FEIO***
