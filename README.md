@@ -1,4 +1,5 @@
 ***AFEPPA***
+
 ***ADESIVOS FEIOS PELA PAZ***
 
 Associação fundada em: dez/2019
@@ -73,4 +74,4 @@ Comece direto do plano B
 Ser feio é ser de boa. 
 
 
-***FIM DO MANIFESTO FEIO***
+***FIM DO MANIFESTO FEIO_***
