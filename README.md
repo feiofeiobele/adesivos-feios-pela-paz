@@ -1,6 +1,6 @@
 # ***AFEPPA***
 
-## ***ADESIVOS FEIOS PELA PAZ***
+## ADESIVOS FEIOS PELA PAZ
 
 Associação protocolada em: dez/2019
 
@@ -36,7 +36,7 @@ Associação protocolada em: dez/2019
 
 
 
-#### ***_O MANIFESTO FEIO***
+### ***_O MANIFESTO FEIO***
 
 Seja feio
 
