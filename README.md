@@ -10,8 +10,7 @@ Associação protocolada em: dez/2019
 - Aline Morlock (since dez/2019)
 
 - Felipe Toten (since dez/2019)
-- 
-- 
+
 
 ***_SÓCIOS*** (Sarjeta)
 
@@ -19,7 +18,6 @@ Associação protocolada em: dez/2019
 
 -
 
--
 
 ***_MEMBROS*** (Rua)
 
@@ -32,6 +30,8 @@ Associação protocolada em: dez/2019
 - Aline Dois (se convidou)
 
 - Marion Chatt (se convidou)
+
+- J.G. Lendia (a convidar)
 
 
 
