@@ -1,25 +1,24 @@
-# ***AFEPPA***
+AFEPPA
 
-## ADESIVOS FEIOS PELA PAZ
+ADESIVOS FEIOS PELA PAZ
 
 Associação protocolada em: dez/2019
 
+_SÓCIOS FUNDADORES
 
-### ***_SÓCIOS FUNDADORES*** (Bueiro)
+- Gambiarra Genérica (since dez/2019)
 
-- Aline Morlock (since dez/2019)
-
-- Felipe Toten (since dez/2019)
+- Toten (since dez/2019)
 
 
-### ***_SÓCIOS*** (Sarjeta)
-
--
+_SÓCIOS (Sarjeta)
 
 -
 
+-
 
-### ***_MEMBROS*** (Rua)
+
+_MEMBROS (Lixeira)
 
 - Haole Velha (a convidar)
 
@@ -35,8 +34,7 @@ Associação protocolada em: dez/2019
 
 
 
-
-### ***_O MANIFESTO FEIO***
+_O MANIFESTO FEIO
 
 Seja feio
 
@@ -78,5 +76,4 @@ Comece direto do plano B
 
 Ser feio é ser de boa. 
 
-
-### ***FIM DO MANIFESTO FEIO_***
+FIM DO MANIFESTO FEIO_
