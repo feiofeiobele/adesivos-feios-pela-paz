@@ -1,6 +1,6 @@
-ⒶⒻⒺⓅⓅⒶ
+█▓▒░AFEPPA░▒▓█
 
-ADESIVOS FEIOS PELA PAZ
+『ADESIVOS FEIOS PELA PAZ』
 
 Associação protocolada em: dez/2019
 
