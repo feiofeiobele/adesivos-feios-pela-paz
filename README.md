@@ -1,4 +1,4 @@
-AFEPPA
+ⒶⒻⒺⓅⓅⒶ
 
 ADESIVOS FEIOS PELA PAZ
 
@@ -6,9 +6,9 @@ Associação protocolada em: dez/2019
 
 _SÓCIOS FUNDADORES
 
-- Gambiarra Genérica (since dez/2019)
+- Gambiarra Genérica (dez/2019)
 
-- Toten (since dez/2019)
+- Toten (dez/2019)
 
 
 _SÓCIOS (Sarjeta)
@@ -20,6 +20,10 @@ _SÓCIOS (Sarjeta)
 
 _MEMBROS (Lixeira)
 
+- Marion Chatt (abr/2022)
+
+----
+
 - Haole Velha (a convidar)
 
 - Luan Atópico (a convidar)
@@ -27,8 +31,6 @@ _MEMBROS (Lixeira)
 - Mattüs Ausente (a convidar)
 
 - Aline Dois (se convidou)
-
-- Marion Chatt (se convidou)
 
 - J.G. Lendia (a convidar)
 
