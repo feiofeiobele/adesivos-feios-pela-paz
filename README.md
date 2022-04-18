@@ -1,4 +1,4 @@
-█▓▒░AFEPPA░▒▓█
+█▓▒░𝐀𝐅𝐄𝐏𝐏𝐀░▒▓█
 
 『ADESIVOS FEIOS PELA PAZ』
 
