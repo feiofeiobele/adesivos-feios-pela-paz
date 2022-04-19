@@ -60,3 +60,5 @@
   Ser feio é ser de boa. 
 
   FIM DO MANIFESTO FEIO_
+  
+  AFEPPA - Ⓐ Nenhum direito reservado. Contato: feiofeiobele@gmail.com
