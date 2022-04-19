@@ -8,7 +8,7 @@
 
   - Gambiarra Genérica (dez/2019)
 
-  - Toten (dez/2019)
+  - TOTEИ (dez/2019)
 
 
   _SÓCIOS (Sarjeta)
