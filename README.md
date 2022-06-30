@@ -6,9 +6,9 @@
 
   _SÓCIOS FUNDADORES (Bueiro)
 
-  - Gambiarra Genérica (dez/2019)
+  - Gambiarra Genérica (dez/19)
 
-  - TOTEИ (dez/2019)
+  - TOTEИ (dez/19)
 
 
   _SÓCIOS (Sarjeta)
@@ -20,12 +20,13 @@
 
   _MEMBROS (Lixeira)
 
-  - Marion Chatt (abr/2022)
+  - Marion Chatt (abr/22)
+  
+  - Haole Velha (jun/22)
 
   ----
 
-  - Haole Velha (a convidar)
-
+ 
   - Luan Atópico (a convidar)
 
   - Mattüs Ausente (a convidar)
